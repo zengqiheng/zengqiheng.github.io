@@ -7,7 +7,7 @@
 # 介绍
 - 南昌停水停电大学在读
 - 找寻**富婆**中
-- 有意详询<wangxing2001@gmail.com>
+- 有意详询<2001wangxing@gmail.com>
 
 ***
 
